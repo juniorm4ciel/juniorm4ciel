@@ -1,4 +1,4 @@
-### Bem-vindo ao perfil do Junior Maciel 👋🤓
+### Oi! Eu sou o Junior Maciel 👋💻
 
 <div>
   <a href="https://github.com/juniorm4ciel">
