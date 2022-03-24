@@ -1,4 +1,4 @@
-### Oi! Eu sou o Junior Maciel 👋💻
+### Oi! Eu sou o Junior👋🏼✌🏼
 
 <div>
   <a href="https://github.com/juniorm4ciel">
